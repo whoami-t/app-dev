@@ -7,7 +7,7 @@
 
 # OBSESSION
 
-<img width="1000" height="1481" alt="MV5BYzc1NWUwMDgtNGZlMS00ZmYzLWIzMzktNmMxMmY1MTUzNWExXkEyXkFqcGc@ _V1_FMjpg_UX1000_" src="https://github.com/user-attachments/assets/3c76f2d4-b01c-4808-9353-8d41427fc64d" />
+<img width="399" height="501" alt="MV5BYzc1NWUwMDgtNGZlMS00ZmYzLWIzMzktNmMxMmY1MTUzNWExXkEyXkFqcGc@ _V1_FMjpg_UX1000_" src="https://github.com/user-attachments/assets/3c76f2d4-b01c-4808-9353-8d41427fc64d" />
 
 **The danger isn't in wanting. It's in the obsession.**
 
